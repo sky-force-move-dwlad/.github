@@ -14,7 +14,7 @@ Wondering how to W𝚊tch Sky Force 𝙾nl𝚒ne? We have all of the details on 
 
 Release date: 24 January 2025 (USA and Indian & Worldwide)
 
-Sky Force
+Sky force download
 
 Sky Force review
 
